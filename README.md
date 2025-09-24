@@ -4,7 +4,7 @@
 
 **Admins**: None Currently. Spots Open!
 
-**Gui Designers**: None Currently. Spots Open!
+**Gui Designers**: Red head stranger
 
 **Programmers**: Zach / Founder
 
