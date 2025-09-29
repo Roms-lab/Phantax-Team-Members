@@ -12,4 +12,4 @@
 
 **Reverse Engineers**: None Currently. Spots Open! 
 
-**infrastructure specialists:** None Currently, Spots Open!
+**Infrastructure Specialists:** None Currently, Spots Open!
